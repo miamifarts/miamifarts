@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @miamifarts
+- 👀 I’m interested in sports(basketball, netball, hockey)
+- 🌱 I’m currently learning :italian!!
+- 💞️ I’m looking to collaborate on :no thanks
+- 📫 How to reach me : instagram @miamifarts
+- 😄 Pronouns: her/she
+- ⚡ Fun fact: i hate beans
